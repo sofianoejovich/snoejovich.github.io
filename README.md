@@ -1,1 +1,0 @@
-# snoejovich.github.io
